@@ -7,7 +7,7 @@ A Mostbet az egyik vezető online fogadóiroda és kaszinó, amely most már a m
 
 A Mostbet kaszinó részlege több mint 5000 különféle játékot kínál. A kínálatban megtalálhatók a népszerű nyerőgépek, a rulett, a póker, az élő osztós játékok, valamint számos verseny és esemény. A sportfogadási lehetőségek ugyanazon a fiókon keresztül érhetők el, amely a kaszinóhoz is kapcsolódik. Az oldal dizájnja egyszerű és könnyen kezelhető, a mobilverzió pedig szintén felhasználóbarát, biztosítva a zökkenőmentes élményt útközben is.
 <a href="https://href.li/?https://goo.su/VNUW">
-![mostbet-brasil](https://github.com/user-attachments/assets/26196c90-af0f-4113-9dfe-8cec9952964e)
+![mostbet-hu](https://github.com/user-attachments/assets/513c76e9-c962-45ce-8cce-bf25cdff4577)
 </a>
 
 ## Játékok széles választéka a Mostbet játékosok számára Magyarországon
